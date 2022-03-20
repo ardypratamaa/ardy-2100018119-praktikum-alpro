@@ -1,1 +1,0 @@
-# ardy-2100018119-praktikum-alpro
